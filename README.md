@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning **Database administrator**
 - 📫 How to reach me **adithia88888@gmail.com**
 - 📚 Tech and Sport Enthusiast  
-- 🧬 A person who uses numbers, colors, charts and dashboards to produce insightful and beautiful products.
+- 🧬 Handsome and strong.
 - 🐍 Python and Jupyter Notebook User
 
 <h4 align="left">Connect with me:</h3>
